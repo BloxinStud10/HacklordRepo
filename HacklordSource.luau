@@ -1,4 +1,4 @@
---Fuck you felixiqobby, Epic on top
+--felixiqobby and me are chill now, it was some fucker reuploading it to ghosthub
 
 --Converted/Scripted by Epicatos (Github: BloxinStud10)
 --Assets are stolen from Forsaken lol
